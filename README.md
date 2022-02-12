@@ -3,7 +3,7 @@ ikr
 it's so sus
 lol
 ok ill stop
-go see a real profile
+go see a real profile...
 you're still reading?
 well stop
 you are very persistent
