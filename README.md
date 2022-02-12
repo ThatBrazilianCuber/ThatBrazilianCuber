@@ -5,10 +5,9 @@ lol
 ok ill stop
 go see a real profile...
 you're still reading?
-well stop
+well stop.
 you are very persistent
-ok fine ill stop
-in
+ok fine ill stop in
 999
 998
 997
